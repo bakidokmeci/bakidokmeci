@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bakidokmeci
+- 🧮 Date im writing this is 09.2024
+- 🌱 I'll study computer engineering at selcuk university 1 month later 
+- 📫 How to reach me : my mail is bakidokmeciedu@outlook.com
+- 😄 Pronouns: he/him
+- 🍎 Age: 20
