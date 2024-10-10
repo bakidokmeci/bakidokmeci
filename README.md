@@ -3,4 +3,4 @@
 - 📫 How to reach me : my mail is bakidokmeciedu@outlook.com
 - 😄 Pronouns: he/him
 - 🍎 Age: 20
-- current date im writing this is 09.2024
+  
